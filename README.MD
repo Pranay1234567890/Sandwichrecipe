@@ -1,0 +1,6 @@
+# Chocolate Mousse  
+A mousse (/ˈmuːs/; French: [mus]; "foam") is a soft prepared food that incorporates air bubbles to give it a light and airy texture. It can range from light and fluffy to creamy and thick, depending on preparation techniques. A mousse may be sweet or savory.[1]
+
+Sweet mousses are typically made with whipped egg whites, whipped cream,[2] or both, and flavored with one or more of chocolate, coffee, caramel,[3] puréed fruits, or various herbs and spices, such as mint or vanilla.[4] In the case of some chocolate mousses, egg yolks are often stirred into melted chocolate to give the final product a richer mouthfeel. Mousses are also typically chilled before being served, which gives them a denser texture. Sweetened mousse is served as a dessert, or used as an airy cake filling. It is sometimes stabilized with gelatin.[5][6]
+
+Savory mousses can be made from meat, fish, shellfish, foie gras, cheese, or vegetables. Hot mousses often get their light texture from the addition of beaten egg whites.[1].
